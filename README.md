@@ -1,1 +1,3 @@
-# projek-matdis1
+TUGAS MATEMATIKA DISKRIT
+
+-Prinsip Inklusi dan Ekslusi-
