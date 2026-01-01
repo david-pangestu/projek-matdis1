@@ -4,4 +4,4 @@
 
 **DOSEN TEORI:**
 
-Pak Novrido Charibaldi Dr. S.Kom., M.Kom.
+- Pak Novrido Charibaldi Dr. S.Kom., M.Kom.
